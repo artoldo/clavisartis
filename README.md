@@ -140,3 +140,4 @@ dalla copia della Hortis e passando poi a quella dei Lincei con un simile altres
 differente effetto visivo. La collezione di circa mille e non più mille clip ha la
 specifica tecnica di funzionare come GIFs, formato scelto perché la cybercultura
 della prima ora aveva un ché di arcano e strizzava l'occhi a riferimenti occultistici.
+
