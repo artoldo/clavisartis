@@ -1,4 +1,4 @@
-"CLAVIS ARTIS - even more puzzling..."
+"CLAVIS ARTIS - EVEN MORE PUZZLING"
 
 di ARTOLDO – Sara Ferro & Chris Weil
 
