@@ -11,6 +11,7 @@ Le illuminazioni della Clavis artis, anche quelle più incupenti perché apparen
 mademoliselles divorate da esseri rapaci dagli occhi come bolliti e tristi, come in trance, dame infilzate alle reni, dolci draghetti presi a clavate chiodate,
 rappresentano invece un viaggio iconograficamente alchemico come nella migliore Tradizione altresì con elementi sorprendentemente esotici nonostante
 tutta la favella e cronistoria ermetica sia già all’insegna del più grande guazzabuglio - sebbene con una sua severa e rigorosa contraddittorietà tutta interna ad un ferreo ragionamento e concatenazioni stringenti altresì di occulto raziocinio e principi reconditi, sottaciuti e dissimulati.
+
 Nel lavoro attorno all’opus ivi ritratto si è voluto metterne in risalto il divertito
 sconcerto che la visione di tali immagini provoca, provocando a sua volta ulteriori
 contemporanei turbamenti con una ricomposizione postmoderna delle consuete
